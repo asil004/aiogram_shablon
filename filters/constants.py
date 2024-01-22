@@ -1,0 +1,1 @@
+#Here must write static sentences!
